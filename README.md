@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Semih
+- I'm studying Automotive Engineering at ULUDAG UNIVERSITY.
